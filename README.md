@@ -1,1 +1,0 @@
-# Paru_darbs
